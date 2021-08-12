@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Programas específicos para  Designers e Arquitetura e para Marketing Digital
 - 🌱 I’m currently learning ...Design de Interiores  e  área digital
 - 💞️ I’m looking to collaborate on ...Dicas de  Design e Decoração em Mídias Digitais
-- 📫 How to reach me ...
+- 📫 How to reach me ...instagran e Pinterest
 
 <!---
 Barbarapach89/Barbarapach89 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
